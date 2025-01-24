@@ -8,7 +8,7 @@ At BIR Luxury Landing, we pride ourselves on providing ample room and space for 
   <li>Capacity to host intimate gatherings as well as larger events, ensuring a perfect fit for any occasion.</li>
   <li>Flexible layouts for different types of events, from casual parties to formal conferences.</li>
 </ul>
-Whether you need a cozy birthday <a href"https://birluxurylanding.com/">party space rental</a> or a grand setting for a wedding, we have the perfect venue for you.
+Whether you need a cozy birthday <a href="https://birluxurylanding.com/">party space rental</a> or a grand setting for a wedding, we have the perfect venue for you.
 
 <h2>Comprehensive Packages for Every Occasion</h2>
 We offer an array of packages that cater to different events:
